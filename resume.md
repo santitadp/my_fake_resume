@@ -1,4 +1,4 @@
-Santita Dwi Putri
+Santita "Sant" Dwi Putri
 ===========================
 
 Skills
